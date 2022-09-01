@@ -7,9 +7,13 @@
 - 💞️ I’m looking to collaborate on ...
 
   Air Conditioning
+  
   Heat Pumps
+  
   Electronics
+  
   Electric Vehicles
+  
 
 
 - 📫 How to reach me ...
